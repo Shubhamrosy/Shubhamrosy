@@ -16,4 +16,4 @@ Let's Connect
 I'm here to collaborate, learn, and make an impact. If you share my passion for technology and innovation, let's connect and explore the possibilities together.
 
 **LinkedIn**
-https://www.linkedin.com/in/shubham-patel-ab1613287
+https://www.linkedin.com/in/shubham-rosy/
